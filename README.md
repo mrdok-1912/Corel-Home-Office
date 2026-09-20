@@ -210,4 +210,4 @@ Corel Home Office is the full version available for **free download**. Enjoy com
 Experience the power of productivity with Corel Home Office. **Download now** and start transforming your workflow today!
 
 ---
-**Last updated:** 2026-09-19 22:49:19 UTC
+**Last updated:** 2026-09-20 00:53:13 UTC
